@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Trieu Dinh Loc
 - 👀 I’m interested in Edit videos and create attractive movies
-- 🌱 I’m 
+- 🌱I propose developing video projects to enhance engagement and grow our business. First, a company introduction video will highlight our history and core values in a captivating manner. Next, product tutorial videos will clearly illustrate product usage, incorporating informative graphics. Customer testimonial videos will add authenticity by sharing satisfied clients' experiences. For marketing campaigns, we need unique and impressive videos with special effects. Capturing events and workshops to create vibrant event videos is essential. Business storytelling videos will convey our success stories effectively. Lastly, internal news videos will update employees on activities and achievements.Using DaVinci Resolve, I am committed to delivering high-quality video content that will elevate our company's image! 
 - 💞️ I’m looking to collaborate on Up Work
 - 📫 Email: Trieudinhlocsw@gmail.com
