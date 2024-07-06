@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Trieu Dinh Loc
+- 👀 I’m interested in Edit videos and create attractive movies
+- 🌱 I’m 
+- 💞️ I’m looking to collaborate on Up Work
+- 📫 Email: Trieudinhlocsw@gmail.com
